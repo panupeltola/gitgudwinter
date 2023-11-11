@@ -1,0 +1,1 @@
+jouluun on käytännössä kuukausi
